@@ -1,0 +1,1 @@
+Leverage machine learning to revolutionize restaurant operations by optimizing menu pricing, forecasting demand, enhancing customer experiences, and reducing waste, driving profitability and efficiency in the competitive dining industry.
